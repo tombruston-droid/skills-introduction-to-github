@@ -1,2 +1,3 @@
+sd;sn,d sq,; c;, q;,s c,qs
 hi i'm tom and trying to undersatnd github ...
 i'm sure i will.
